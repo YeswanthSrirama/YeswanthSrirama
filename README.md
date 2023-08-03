@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YeswanthSrirama
+- 👀 I’m interested in AI
+- 🌱 I’m currently learning Machine Learning
+- 💞️ I am open to work immediately.
+- 📫 You can reach me on - https://www.linkedin.com/in/srirama-yeshwanth-2b68a8258/
